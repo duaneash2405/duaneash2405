@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @duaneash2405
+- 👋 Hi, I’m Ronnie Wong Soon
 - 👀 I’m interested in learning new software and codings
 
 <a href="https://visitcount.itsvg.in">
